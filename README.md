@@ -1,2 +1,0 @@
-# Industrial-Web-Colombia
-Criptomonedas
